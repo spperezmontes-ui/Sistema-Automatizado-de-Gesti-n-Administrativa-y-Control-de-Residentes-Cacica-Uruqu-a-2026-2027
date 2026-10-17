@@ -1,0 +1,1 @@
+# Sistema-Automatizado-de-Gesti-n-Administrativa-y-Control-de-Residentes-Cacica-Uruqu-a-2026-2027
